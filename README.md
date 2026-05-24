@@ -14,4 +14,4 @@ republishing or translating substantial parts.
 
 ## Contact
 
-andreas-schmidt-arts.de
+info@andreas-schmidt-arts.de
